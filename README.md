@@ -1,1 +1,3 @@
-hello world!!
+nyomantrimakna
+Github Akun: nyomantri.com
+Profile: nyomantri
